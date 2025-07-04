@@ -23,3 +23,10 @@ analyst fit hobby parrot refuse release blush gasp kitchen insect peace
 job_board-main
 https://1drv.ms/u/c/527698977be0599f/EUOJc3DrX4pPiSjsBOSsgz8BafgoWu7TTKIdyT22JL7oFQ?e=yW0SPE
 https://1drv.ms/u/c/527698977be0599f/ETgid4LO_pBFhzkpWJjBIekBvZlupJxhoKYPBlr_C57xpg?e=Cwflpl
+
+SAVE YOUR BACKUP CODES
+1. 0000 0000		 6. 8170 0782
+2. 2503 3150		 7. 5416 5805
+3. 6572 1852		 8. 8417 2071
+4. 9159 5277		 9. 1560 8398
+5. 5591 3949		10. 4630 4015
